@@ -8,6 +8,8 @@
 
 This time, **Granny is not alone. Grandpa joins the deadly game**, and together they create a nightmare you must escape from. Use stealth, speed, and strategy to explore the house, solve puzzles, unlock doors, and find your way out alive.
 
+![Granny 2](https://github.com/user-attachments/assets/3170870e-a6b7-42db-bf9c-2f36252da3a2)
+
 ---
 
 ## 🧠 Why *Granny 2 Unblocked* is So Addictive
